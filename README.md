@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @1214798
+- 👀 I’m interested in 1214798
+- 🌱 I’m currently learning 1214798 .1
+- 💞️ I’m looking to collaborate on 1214798 .1
+- 📫 How to reach me 1214798 .1
